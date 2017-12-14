@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## THET LITURGISKE OWÄSENDET
 
 You can use the [editor on GitHub](https://github.com/thetaprism/thetaprism.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
