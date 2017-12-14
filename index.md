@@ -1,4 +1,4 @@
-## THET LITURGISKE OWÄSENDET
+## .
 
-[THET on Bandcamp](https://thetliturgiskeowasendet.bandcamp.com/)
+[*](https://thetliturgiskeowasendet.bandcamp.com/)
 
